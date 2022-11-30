@@ -1,1 +1,0 @@
-# tornike.github.io
